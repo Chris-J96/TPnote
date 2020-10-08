@@ -20,3 +20,5 @@ Surtout celles qui vous tapent comme un grand coup de surin en pleine poitrine
 Croyant la jouer fine, il ne voulait pas, ne cherchait même pas
 À ranger ce putain d'orgueil qui tranchait les liens familiaux
 Chaque jour un peu plusJ'avais pas l'impression d'être plus coté qu'une caisse à l'argus
+Donc j'ai dû renoncer, trouver mes propres complices
+Mes partenaires de glisse, désolé si je m'immisce
